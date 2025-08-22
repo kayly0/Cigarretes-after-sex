@@ -1,2 +1,2 @@
-# Cigarretes-after-sex
+# Cigarettes-after-sex
 sobre a banda
